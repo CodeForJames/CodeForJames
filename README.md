@@ -16,6 +16,8 @@
   - **LinkedIn: www.linkedin.com/in/ibrahim-temel-581186315**
 
   - **Medium: https://medium.com/@CodeForJames**
+ 
+  - **Instagram: https://www.instagram.com/codeforjames/**
 
 
 
