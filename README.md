@@ -17,7 +17,6 @@
 
   - **Medium: https://medium.com/@CodeForJames**
  
-  - **Instagram: https://www.instagram.com/codeforjames/**
 
 
 
